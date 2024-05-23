@@ -1,3 +1,0 @@
-# Receita de Stogonoff
-
-# 
